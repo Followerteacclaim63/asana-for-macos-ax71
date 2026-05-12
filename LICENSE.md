@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate ClickUp for macOS extension with ClickUp for macOS automatic Extension: database templates & AI assistant. Featuring database templates and AI assistant, it's the
 
 
 
